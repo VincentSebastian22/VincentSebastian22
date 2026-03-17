@@ -5,7 +5,7 @@
 
 ## 🎯 Goals<br><br>Learning coding for:<br><br>- Future college preparation<br>- Career readiness<br>- Opening opportunities in tech<br><br>
 
-## ⚡ A Little About Me<br><br>
+## ⚡ A Little About Me<br>
 On a journey to grow in tech — learning, improving, and moving forward every day 💻<br><br>
 
 
